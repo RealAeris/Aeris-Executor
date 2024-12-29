@@ -5,4 +5,4 @@ the actual best roblox executor custom coded to perfection. no ad link, no work 
 
 download link: https://gofile.io/d/rqkWLc
 
-discord link: https://discord.gg/aeris
+discord link: (in progress)
